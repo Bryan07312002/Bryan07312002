@@ -1,5 +1,4 @@
 🔭 **Fullstack Developer** | 🖥️ Backend Enthusiast | 🐳 DevOps Explorer
-🌟 Passionate about building robust systems and learning modern technologies
 
 📧 contato.bryanbecker@gmail.com
 💼 https://linkedin.com/in/bryan-gabriel-becker
