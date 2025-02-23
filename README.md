@@ -2,7 +2,7 @@
 🌟 Passionate about building robust systems and learning modern technologies
 
 📧 contato.bryanbecker@gmail.com
-💼 [https://linkedin.com/in/bryan-gabriel-becker]
+💼 https://linkedin.com/in/bryan-gabriel-becker
 
 ---
 
